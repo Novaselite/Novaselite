@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **DDoS Protection, g(lua) help, Web-design, Hosting**
 
-- 📫 How to reach me **discord: jinxoriginal.**
+- 📫 How to reach me **discord: violetevergarden.exe**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
